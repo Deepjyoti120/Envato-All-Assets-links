@@ -1,1 +1,1 @@
-https://raw.githubusercontent.com/Deepjyoti120/Envato-All-Assets-links/master/Assam%20Exam%20Prep/Section/art_culture_of_assam.gif
+https://raw.githubusercontent.com/Deepjyoti120/Envato-All-Assets-links/master/Assam%20Exam%20Prep/Section/assam_state.gif
