@@ -1,1 +1,1 @@
-https://raw.githubusercontent.com/Deepjyoti120/Envato-All-Assets-links/master/Assam%20Exam%20Prep/Section/assam_state.gif
+https://raw.githubusercontent.com/Deepjyoti120/Envato-All-Assets-links/master/Assam%20Exam%20Prep/Section/rivers_andt_heir_tributaries_in_assam.gif
